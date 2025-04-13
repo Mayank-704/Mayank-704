@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **mayankg88813@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/197m7CW8V6XxQGceXXzLTAbGDYZlzDyN7/view?usp=sharing](https://drive.google.com/file/d/197m7CW8V6XxQGceXXzLTAbGDYZlzDyN7/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/195Wsff1c3dULRoWUfVOgu-4sQRvNGe_R/view?usp=sharing](https://drive.google.com/file/d/195Wsff1c3dULRoWUfVOgu-4sQRvNGe_R/view?usp=sharing)
 
 - ⚡ Fun fact **People never get bored when they're around me.**
 
